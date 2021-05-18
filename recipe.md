@@ -1,0 +1,3 @@
+Take a pizza base spread a butter on it and then spread pizza sausce on it put some prosses cheese on it and cut the vegetable in small pieces and put in pizza base and also cut the paneer in small pieces and put on it spread pinch of salt and seasoning with mixed herbs.
+Preheat the oven at 180° then put gretted mozzrella cheese and put the pizza in oven for 10 min.
+After 10 min you will see that your pizza is ready to eat .
